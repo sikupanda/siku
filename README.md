@@ -1,2 +1,2 @@
 # siku
-Daddgahhahajjhajajahgtahhagaggqgqgqggahah
+Work is everything
